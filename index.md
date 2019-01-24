@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Nerdy Sociology
 
-I'm glad you are here. I plan to talk about ...
+I am 23 years old master graduate who is really fascinated by data analysis.
